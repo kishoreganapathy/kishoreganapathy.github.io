@@ -1,1 +1,0 @@
-# kishoreganapathy.github.io
